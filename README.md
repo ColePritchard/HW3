@@ -1,0 +1,1 @@
+This is a simple box designed in sketchup, Exoported the vectors, finalized them in Adobe Illustrator, then finally cut into Fluorescent Green Acrylic. It holds a standard set of DND dice.
